@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**Well I have great people skills and an amazing personality. I know how to use my Brain too!!!**
